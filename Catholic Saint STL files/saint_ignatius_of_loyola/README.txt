@@ -1,0 +1,1 @@
+St. Ignatius of Loyola Statue, Xavier University, Cincinnati, Ohio by christiansheehy on Thingiverse: https://www.thingiverse.com/thing:3667426
